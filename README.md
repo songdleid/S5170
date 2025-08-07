@@ -2,5 +2,4 @@
 微信：songdleid
 抖音，bilibili，小红书都是 宋隽颢  账号名
 有朋友习惯微信群交流，是同志的可以加群聊聊技术
-
-<img width="1146" height="1611" alt="356c43aafeaa71300f0a31435eec22af" src="https://github.com/user-attachments/assets/8d85d9a1-fab9-40f2-803d-461a6d96dc09" />
+<img width="1146" height="1611" alt="5052950e7908e09ba16da9dffbe36a69" src="https://github.com/user-attachments/assets/71178aee-5d62-496e-b675-37f4dba31222" />
